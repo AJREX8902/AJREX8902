@@ -6,5 +6,9 @@
 
 <!---
 AJREX8902/AJREX8902 is a ✨ special ✨
- repository because its `README.md` (this file) appears on your GitHub profile
-
+ 
+WE ARE ANONYMOUS 
+WE ARE LEGIONS 
+WE ARE NEVER FORGIE
+WE ARE NEVER FORGET 
+EXPECT US 🔥
